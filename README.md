@@ -1,1 +1,0 @@
-# formykuchupuchu.github.io
